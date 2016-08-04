@@ -1,0 +1,12 @@
+# Popping
+Popping是放克舞蹈（Funk Dance）和街舞（Street Dance）中的一种风格，最初的基本形式是借由肌肉迅速地收缩与放松的技巧，使舞者的身体产生震动的感觉，这种技巧称作Pop，舞者会以多种不同的动作和姿势来配合歌曲的节奏进行舞蹈，Popping舞者又被称为Popper。
+
+Popping也可泛指一些与Popping相关的舞蹈风格及技巧，这些舞风与技巧时常融合在Popping中，让舞蹈做出更多的变化。比如通常Wave（电流舞）也经常运用在Popping的里，虽然和Popping一样，它本身也只是一种独立的Style而已。就像其他街头舞蹈一样，也常进行斗舞（Battle），参赛者在人群前面展现舞技击败挑战的舞者或舞团。这时就有机会见识到舞者在表演中不常出现的即兴动作，或做出与参赛者或观众的互动。(Popin Pete一直强调Battle必须"Face To Face")
+
+现在一般的共识是由The Electric Boogaloos舞团的创始者Boogaloo Sam（本名Sam Solomon）在1975年至1976年间受到Locking先锋团体The Lockers的影响以及1960年代流行的热门舞蹈“the jerk”的启发后发明的，基本完成于1976~1978年间，并在发展与成长中成为了一个与Breaking、Locking一样的独立Funk舞种（虽然早期定义上Popping只是一个独立的style，然而在实际表演中以The Electric Boogaloos为首的Popper们大量使用了其它的Funk Style并逐渐把它们融合在一起成为一个舞种）。当Sam跳这种舞蹈并以其独有方式运动肌肉的时嘴里都会念“Pop”这个词，早期人们在看他表演时也会说对他说"Hey do that popping stuff!"，最终这一舞种被命名为Popping，虽然Popping并不能说是由Boogaloo Sam一人发明的，甚至其实在他之前已经有很多人运用肌肉震动来跳舞了，但是他创造了Popping的最基本内容与体系，基本上Popping元素以及其他与其紧密相关的大多数Funk Style均产生于这一时期的美国西海岸不同区域。也有部分的风格产生可能更早，但具体的发明者和历史仍有待考证。
+
+另一个与其紧密相关的舞蹈风格Boogaloo也是由Boogaloo Sam于1975年发明的，并在此后的发展中逐渐吸收其他的风格使其更加完满，现在的Popper们往往将Popping，Boogaloo以及其他很多Funk Style以其运用在舞蹈中。其名字来自于James Brown的歌“Do the boogaloo”。某天Sam在房间里跳舞的时候，他的叔叔说:"Boy, do that boogaloo! "迷惑的Sam问他的叔叔,"What s boogaloo? "。"That means you are getting down" 他的叔叔答到，从那天开始他就被称作Boogaloo Sam，最终也决定了这个舞蹈风格的命名。
+
+主流媒体将Popping及其相关舞蹈风格的风行归功于《Breakin'》等电影，但同时也因为将电影中表现的所有这些舞蹈风格都称为Breakin Dance（国内将其翻译为霹雳舞）而产生了名称上的混淆，而实际上电影中的舞蹈有Breaking、Popping、Locking等几个不同种类。另外，客观上讲流行音乐之王迈克尔·杰克逊（他的Popping编舞老师即是The Electric Boogaloos的成员）在世界范围内的巨大成功也带动了Popping的流行，他的舞步动作如月球漫步（Moon Walk）等都广为人知。但这也造成了另一个名称上的混淆，其实“月球漫步”这个舞步在迈克尔·杰克逊掀起流行前，早就以“Backslide”（后滑）等形式出现在与Popping有关的舞蹈动作及舞蹈风格中（这种舞步更早可以追溯到Funk乐教父James Brown和法国默剧大师Marcel Marceau的舞台表演中）。The Electric Boogaloo认为：“当Sam创造出Popping和Boogaloo时，其他人也在创造并练习自己的独特舞风。在当时（美国）西岸每一个不同的区域都以自己独特的风格闻名，而每一种风格背後都有一个属于自己的精彩故事。而这些区域也包括了奥克兰、沙加缅度和旧金山。”
+
+在1988年，中国的优秀舞者[陶金](http://baike.baidu.com/view/69602.htm)开始学习街舞并将这种舞蹈带回中国，从此在中国开始掀起街舞风潮。由于早期国内对于街舞以及Popping的真正内容和形式了解不够，因而产生了将Street Dance或者Breaking翻译为霹雳舞的错误，同时将Popping错误地翻译为机械舞，而Popping的内容不仅仅只是Robot Style（机器人舞蹈）或者在舞蹈中表现出机械感，因此机械舞这种翻译在街舞圈内已基本被废除。
