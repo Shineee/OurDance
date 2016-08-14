@@ -1,7 +1,7 @@
 # OurDance
 全新的方式分享舞蹈
 
-> 0.0.2.20160804_release
+> 0.0.3.20160814_release
 
 The MIT License (MIT)
 
