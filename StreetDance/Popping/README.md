@@ -3,7 +3,7 @@ Popping是放克舞蹈（Funk Dance）和街舞（Street Dance）中的一种风
 
 Popping也可泛指一些与Popping相关的舞蹈风格及技巧，这些舞风与技巧时常融合在Popping中，让舞蹈做出更多的变化。比如通常Wave（电流舞）也经常运用在Popping的里，虽然和Popping一样，它本身也只是一种独立的Style而已。就像其他街头舞蹈一样，也常进行斗舞（Battle），参赛者在人群前面展现舞技击败挑战的舞者或舞团。这时就有机会见识到舞者在表演中不常出现的即兴动作，或做出与参赛者或观众的互动。(Popin Pete一直强调Battle必须"Face To Face")
 
-现在一般的共识是由The Electric Boogaloos舞团的创始者Boogaloo Sam（本名Sam Solomon）在1975年至1976年间受到Locking先锋团体The Lockers的影响以及1960年代流行的热门舞蹈“the jerk”的启发后发明的，基本完成于1976~1978年间，并在发展与成长中成为了一个与Breaking、Locking一样的独立Funk舞种（虽然早期定义上Popping只是一个独立的style，然而在实际表演中以The Electric Boogaloos为首的Popper们大量使用了其它的Funk Style并逐渐把它们融合在一起成为一个舞种）。当Sam跳这种舞蹈并以其独有方式运动肌肉的时嘴里都会念“Pop”这个词，早期人们在看他表演时也会说对他说"Hey do that popping stuff!"，最终这一舞种被命名为Popping，虽然Popping并不能说是由Boogaloo Sam一人发明的，甚至其实在他之前已经有很多人运用肌肉震动来跳舞了，但是他创造了Popping的最基本内容与体系，基本上Popping元素以及其他与其紧密相关的大多数Funk Style均产生于这一时期的美国西海岸不同区域。也有部分的风格产生可能更早，但具体的发明者和历史仍有待考证。
+现在一般的共识是由The Electric Boogaloos舞团的创始者Boogaloo Sam（本名Sam Solomon）在1975年至1976年间受到Locking先锋团体The Lockers的影响以及1960年代流行的热门舞蹈“The Jerk”的启发后发明的，基本完成于1976~1978年间，并在发展与成长中成为了一个与Breaking、Locking一样的独立Funk舞种（虽然早期定义上Popping只是一个独立的style，然而在实际表演中以The Electric Boogaloos为首的Popper们大量使用了其它的Funk Style并逐渐把它们融合在一起成为一个舞种）。当Sam跳这种舞蹈并以其独有方式运动肌肉的时嘴里都会念“Pop”这个词，早期人们在看他表演时也会说对他说"Hey do that popping stuff!"，最终这一舞种被命名为Popping，虽然Popping并不能说是由Boogaloo Sam一人发明的，甚至其实在他之前已经有很多人运用肌肉震动来跳舞了，但是他创造了Popping的最基本内容与体系，基本上Popping元素以及其他与其紧密相关的大多数Funk Style均产生于这一时期的美国西海岸不同区域。也有部分的风格产生可能更早，但具体的发明者和历史仍有待考证。
 
 另一个与其紧密相关的舞蹈风格Boogaloo也是由Boogaloo Sam于1975年发明的，并在此后的发展中逐渐吸收其他的风格使其更加完满，现在的Popper们往往将Popping，Boogaloo以及其他很多Funk Style以其运用在舞蹈中。其名字来自于James Brown的歌“Do the boogaloo”。某天Sam在房间里跳舞的时候，他的叔叔说:"Boy, do that boogaloo! "迷惑的Sam问他的叔叔,"What s boogaloo? "。"That means you are getting down" 他的叔叔答到，从那天开始他就被称作Boogaloo Sam，最终也决定了这个舞蹈风格的命名。
 
