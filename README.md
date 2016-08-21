@@ -3,7 +3,7 @@
 
 ### [Popping](StreetDance/Popping)
 
-> Version：0.0.5.20160821_release
+> Version：0.0.6.20160821_release
 
 The MIT License (MIT)
 
